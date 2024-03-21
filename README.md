@@ -1,1 +1,2 @@
-el telefono de richi 
+gomez lopez luis fernando 
+equipo 4
